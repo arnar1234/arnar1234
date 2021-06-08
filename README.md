@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @arnar1234
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on nobody haha
+- 💞️ I’m looking to collaborate on nothing haha
 - 📫 How to reach me. https://www.youtube.com/watch?v=dQw4w9WgXcQ
 
 <!---
